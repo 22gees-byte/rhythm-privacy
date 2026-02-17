@@ -100,4 +100,4 @@ If you have questions about this privacy policy or your data, contact us at:
 
 **Email:** 75gees@gmail.com
 
-Replace the email above with your actual contact address before publishing.
+
